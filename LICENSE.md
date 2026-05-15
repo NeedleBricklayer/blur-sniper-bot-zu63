@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with instant blur sniper bot | bundle-transactions + arbitrage-opportunities, the #1 blur sniper bot. Includes bundle-transactions and
 
 
 
